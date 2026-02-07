@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mayankjaindd@gmail.com**
 
-- Portfolio **mayankjain.me**
+- Portfolio **[mayankjain.me](https://mayankjain.me/)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
